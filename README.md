@@ -1,1 +1,1 @@
-https://AlesyaLi.github.io/rsschool-cv/cv
+link CV: https://AlesyaLi.github.io/rsschool-cv/cv
