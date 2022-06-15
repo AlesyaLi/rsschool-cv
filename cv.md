@@ -1,4 +1,4 @@
 ## CV 
 
 #### 1. Alesia Luzhankova
-#### 2. CV: https://figma.fun/CrVqxE
+#### 2. Link CV: [https://figma.fun/CrVqxE](https://figma.fun/CrVqxE)
